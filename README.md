@@ -6,7 +6,7 @@
 
 ###
 
-<h2 align="left">Something more about me 🇨🇿</h2>
+<h2 align="left">Something more about me 🙍‍♂️</h2>
 
 ###
 
